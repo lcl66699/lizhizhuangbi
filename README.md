@@ -75,4 +75,4 @@ External Link (你可能需要梯子):
 
 Wiki.cn: https://zh.wikipedia.org/wiki/%E6%9D%8E%E5%BF%97#cite_note-9
 
-Lizhi's Homepage: http://www.nanjinglizhi.cn/
+Lizhi's Homepage: http://www.nanjinglizhi.cn/ （已挂）
