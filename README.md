@@ -9,11 +9,7 @@
 
 卑鄙是卑鄙者的通行证，高尚是高尚者的墓志铭。
 
-现在不是文字狱，不是旧社会，偌大的互联网想完全抹除一个人的痕迹？？？
-
-在这个全世界最大的程序员社区，就不可能，有本事连GitHub也封了啊，GNMD！！！
-
-天若有情天亦老，人间正道是沧桑，我们不散，逼哥不倒！！！
+正常的艺术作品没有罪，希望可以继续在网络上传播，
 
 微云上有一些额外的资源：https://share.weiyun.com/5oHmFqj 密码：8qmuz7
 
@@ -75,4 +71,8 @@ External Link (你可能需要梯子):
 
 Wiki.cn: https://zh.wikipedia.org/wiki/%E6%9D%8E%E5%BF%97#cite_note-9
 
-Lizhi's Homepage: http://www.nanjinglizhi.cn/ （已挂）
+Lizhi's Homepage: http://www.nanjinglizhi.cn/ （已挂）  
+
+关于他本人的一些不当涉台言论，在这个敏感时期，我不做过多评价。但是，如果确是他本人所说，还是希望他可以做出解释。  
+
+我坚定支持一中原则，台湾是中国不可分割的一部分（Taiwan is a part of China），祖国的主权与领土完整不容侵犯，作为他的歌迷之前，我首先是一个中国人。
