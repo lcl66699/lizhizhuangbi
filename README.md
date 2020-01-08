@@ -11,7 +11,9 @@
 
 正常的艺术作品没有罪，希望可以继续在网络上传播，
 
-微云上有一些额外的资源：https://share.weiyun.com/5oHmFqj 密码：8qmuz7
+微云上有一些额外的资源：https://share.weiyun.com/5oHmFqj 密码：8qmuz7  
+
+链接：https://share.weiyun.com/5vs1Qph 密码：9ukubv  
 
 ## 歌曲：《他们》
 
