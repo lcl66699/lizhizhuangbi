@@ -15,6 +15,8 @@
 
 链接：https://share.weiyun.com/5vs1Qph 密码：9ukubv  
 
+[OneDrive](https://studentutsedu-my.sharepoint.com/:u:/g/personal/13278508_student_uts_edu_au/Ecc6yjHuXhZEhCrRkbSrqqABoRDp67WjPAWrCEH4Iyq7NA?e=gfNkXi)上传了他目前所有专辑的MP3文件，可直接导入Apple Music，密码：bb123   
+
 ## 歌曲：《他们》
 
 词曲：李志
